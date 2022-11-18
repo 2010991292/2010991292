@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Nazia
+- 🌱 I’m currently a CSE student
+- 📫 Connect with me: https://www.linkedin.com/in/nazia-khan-297663245/
